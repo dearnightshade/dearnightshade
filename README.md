@@ -10,8 +10,6 @@ supppper affectionate with friends lalla i love my friends i love my twins!!!
 
 i also LOOOVVVE being called/referred to as whatever character im cosplaying...yees yesss guys it's me from..! that's me!!!
 
-^ on that note, i am NOT a fict,irl, or sys. ok?
-
 
 ![image_alt](https://github.com/dearnightshade/dearnightshade/blob/a8861b9189b502b0f8c3d63b354440db0d4a352a/Untitled480_20260901101350.png)
 art creds: s1llyfreak on twt
