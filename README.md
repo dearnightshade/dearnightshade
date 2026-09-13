@@ -1,4 +1,7 @@
-Dot/Furen/Icarus!! THIS IS A HHUUUGGGE WIP - remaking with itrapped because i love him very much ok...
+<img width="1215" height="166" alt="border" src="https://github.com/user-attachments/assets/9dae8b34-2873-46e7-81b6-996f1c490378" />
+
+
+Dot/Furen/Icarus!! THIS IS A HHUUUGGGE WIP
  
 please do not copy or take heavy inspo off of my ponies. I don't own pixels, but I do spend a lot of time on them !!
 
