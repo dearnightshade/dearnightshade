@@ -11,5 +11,5 @@ supppper affectionate with friends lalla i love my friends i love my twins!!!
 i also LOOOVVVE being called/referred to as whatever character im cosplaying...yees yesss guys it's me from..! that's me!!!
 
 
-![image_alt](<img width="4353" height="2500" alt="ichance peak" src="https://github.com/user-attachments/assets/efb83191-b986-47b7-af08-420ca284cc55" />)
+<img width="4353" height="2500" alt="ichance peak" src="https://github.com/user-attachments/assets/efb83191-b986-47b7-af08-420ca284cc55" />
 art creds: nellee2106 on twt
