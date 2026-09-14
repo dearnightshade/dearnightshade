@@ -15,5 +15,6 @@ i also LOOOVVVE being called/referred to as whatever character im cosplaying...y
 
 <img width="1215" height="166" alt="border" src="https://github.com/user-attachments/assets/9dae8b34-2873-46e7-81b6-996f1c490378" />
 
-<img width="4353" height="2500" alt="ichance peak" src="https://github.com/user-attachments/assets/efb83191-b986-47b7-af08-420ca284cc55" />
+<img width="4352" height="2500" alt="Untitled492_202609131920131" src="https://github.com/user-attachments/assets/31406c65-6300-4921-b4e2-6e2d3370412f" />
+
 art creds: nellee2106 on twt
