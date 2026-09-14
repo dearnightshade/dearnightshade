@@ -26,12 +26,13 @@ $\color{#969fa8}{\text{(𝚒 𝚌𝚊𝚗 𝚊𝚕𝚜𝚘 𝚋𝚎 𝚊 𝚕�
 
 $\color{#656d75}{\text{𝚒 𝚊𝚕𝚜𝚘 𝙻𝙾𝙾𝙾𝚅𝚅𝚅𝙴 𝚋𝚎𝚒𝚗𝚐 𝚌𝚊𝚕𝚕𝚎𝚍/𝚛𝚎𝚏𝚎𝚛𝚛𝚎𝚍 𝚝𝚘 𝚊𝚜 𝚠𝚑𝚊𝚝𝚎𝚟𝚎𝚛 𝚌𝚑𝚊𝚛𝚊𝚌𝚝𝚎𝚛 𝚒𝚖 𝚌𝚘𝚜𝚙𝚕𝚊𝚢𝚒𝚗𝚐...𝚢𝚎𝚎𝚜 𝚐𝚞𝚢𝚜 𝚒𝚝'𝚜 𝚖𝚎 𝚏𝚛𝚘𝚖..! 𝚝𝚑𝚊𝚝'𝚜 𝚖𝚎!!! }}$
 
-
-<img width="1215" height="166" alt="border" src="https://github.com/user-attachments/assets/9dae8b34-2873-46e7-81b6-996f1c490378" />
-
 <p align="center"
 
 ![](https://komarev.com/ghpvc/?username=dearightshade&color=656d75&label=👀KINDNESS&abbreviated=true)
+
+<img width="1215" height="166" alt="border" src="https://github.com/user-attachments/assets/9dae8b34-2873-46e7-81b6-996f1c490378" />
+
+
 <img width="4352" height="2500" alt="Untitled492_202609131920131" src="https://github.com/user-attachments/assets/31406c65-6300-4921-b4e2-6e2d3370412f" />
 
 $\color{#969fa8}{\text{𝚊𝚛𝚝 𝚌𝚛𝚎𝚍𝚜: 𝚗𝚎𝚕𝚕𝚎𝚎𝟸𝟷0𝟼 𝚘𝚗 𝚝𝚠𝚝 }}$
