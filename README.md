@@ -46,3 +46,15 @@ $\color{#969fa8}{\text{𝚒 𝚊𝚕𝚜𝚘 𝙻𝙾𝙾𝙾𝚅𝚅𝚅𝙴 �
 <img width="4352" height="2500" alt="Untitled492_202609131920131" src="https://github.com/user-attachments/assets/31406c65-6300-4921-b4e2-6e2d3370412f" />
 
 $\color{#969fa8}{\text{𝚊𝚛𝚝 𝚌𝚛𝚎𝚍𝚜: 𝚗𝚎𝚕𝚕𝚎𝚎𝟸𝟷0𝟼 𝚘𝚗 𝚝𝚠𝚝 }}$
+
+</p>
+<div align="center"><details close="">
+<summary> $\color{#656d75}{\text{𝚌𝚕𝚒𝚌𝚔 𝚝𝚘 𝚜𝚎𝚎 𝚝𝚑𝚎 𝚌𝚞𝚝𝚒𝚎𝚜 𝚎𝚟𝚎𝚛...}}$ </summary>
+
+$\color{#969fa8}{\text{𝚝𝚠𝚘𝚕𝚎𝚊𝚏𝚌𝚕𝚘𝚟𝚎𝚛 𝚓𝚞𝚖𝚙𝚜𝚌𝚊𝚛𝚎..!!!! (𝚊𝚗𝚍 𝙸 𝙶𝚄𝙴𝚂𝚂 𝚜𝚑𝚊𝚍𝚘𝚠 𝚠𝚒𝚣𝚊𝚛𝚍 𝚖𝚘𝚗𝚎𝚢 𝚐𝚊𝚗𝚐) }}$
+
+<img width="1024" height="784" alt="aw aw aw" src="https://github.com/user-attachments/assets/2b5d3eaf-6ad6-41c7-a0e7-e23ca64d9271" />
+$\color{#656d75}{\text{𝚊𝚛𝚝 𝚌𝚛𝚎𝚍𝚜: 𝚁𝚒𝚍𝚍𝚕𝚒𝚗𝚐𝚁𝚑𝚢𝚖𝚎𝚜 𝚘𝚗 𝚝𝚠𝚝}}$
+
+ </p>
+</div>
