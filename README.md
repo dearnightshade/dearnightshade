@@ -42,6 +42,7 @@ $\color{#969fa8}{\text{𝚒 𝚊𝚕𝚜𝚘 𝙻𝙾𝙾𝙾𝚅𝚅𝚅𝙴 �
 <p align="center"
 
 <a href="https://github.com/dearightshade">
+ 
   <img src="https://komarev.com/ghpvc/?username=dearightshade&label=👀KINDNESS&color=656d75&style=flat" />
 </a>
 
