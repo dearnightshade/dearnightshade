@@ -45,7 +45,8 @@ $\color{#969fa8}{\text{𝚒 𝚊𝚕𝚜𝚘 𝙻𝙾𝙾𝙾𝚅𝚅𝚅𝙴 �
  ![](https://komarev.com/ghpvc/?username=dearightshade&label=👀KINDNESS&color=656d75&style=flat)
 
 
-<img width="1000" src="https://github.com/user-attachments/assets/31406c65-6300-4921-b4e2-6e2d3370412f" />
+<img width="4353" src="https://github.com/user-attachments/assets/11381767-415b-481e-a7b5-3841cc5ed35a" />
+
 
 $\color{#969fa8}{\text{𝚊𝚛𝚝 𝚌𝚛𝚎𝚍𝚜: 𝚗𝚎𝚕𝚕𝚎𝚎𝟸𝟷0𝟼 𝚘𝚗 𝚝𝚠𝚝 }}$
 
