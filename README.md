@@ -48,9 +48,6 @@ $\color{#969fa8}{\text{𝚒 𝚊𝚕𝚜𝚘 𝙻𝙾𝙾𝙾𝚅𝚅𝚅𝙴 �
 <img width="4353" src="https://github.com/user-attachments/assets/11381767-415b-481e-a7b5-3841cc5ed35a" />
 
 
-$\color{#969fa8}{\text{𝚊𝚛𝚝 𝚌𝚛𝚎𝚍𝚜: 𝚗𝚎𝚕𝚕𝚎𝚎𝟸𝟷0𝟼 𝚘𝚗 𝚝𝚠𝚝 }}$
-
-
 <img width="1500" src="https://github.com/user-attachments/assets/9e4efdff-6410-4cf6-9822-b4f416f6a4e4" />
 
 
@@ -65,5 +62,18 @@ $\color{#656d75}{\text{𝚊𝚛𝚝 𝚌𝚛𝚎𝚍𝚜: 𝚁𝚒𝚍𝚍𝚕�
 
  </p>
 </div>
+
+</p>
+<div align="center"><details close="">
+<summary> $\color{#969fa8}{\text{𝚊𝚕𝚕 𝚊𝚛𝚝 𝚌𝚛𝚎𝚍𝚒𝚝𝚜}}$ </summary>
+ 
+$\color{#656d75}{\text{@𝚌𝚒𝚗𝚍𝚎𝚛𝚜𝚗𝚘𝚠𝚜 𝚘𝚗 𝚝𝚠𝚝- 𝚝𝚘𝚙 𝚋𝚘𝚛𝚍𝚎𝚛}}$
+
+$\color{#969fa8}{\text{@𝚗𝚎𝚕𝚕𝚎𝚎𝟸𝟷0𝟼 𝚘𝚗 𝚝𝚠𝚝- 𝚖𝚒𝚍𝚍𝚕𝚎 𝚐𝚛𝚊𝚙𝚑𝚒𝚌}}$
+
+$\color{#656d75}{\text{@𝚁𝚒𝚍𝚍𝚕𝚒𝚗𝚐𝚁𝚑𝚢𝚖𝚎𝚜 𝚘𝚗 𝚝𝚠𝚝- 𝚜𝚑𝚊𝚍𝚘𝚠𝚠𝚒𝚣𝚊𝚛𝚍𝚖𝚘𝚗𝚎𝚢𝚐𝚊𝚗𝚐 𝚜𝚞𝚛𝚙𝚛𝚒𝚜𝚎}}$
+
+$\color{#969fa8}{\text{@𝚓𝚎𝚢𝚢𝚠𝚊𝚕𝚔𝚒𝚗 𝚘𝚗 𝚝𝚠𝚝- 𝚋𝚘𝚝𝚝𝚘𝚖 𝚋𝚘𝚛𝚍𝚎𝚛}}$
+
 
 <img width="1500" src="https://github.com/user-attachments/assets/07dea713-db8b-4471-ab24-71aa23483b7b" />
