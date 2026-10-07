@@ -1,4 +1,4 @@
-<img width="1500" alt="ichancing" src="https://github.com/user-attachments/assets/837bf81b-8110-4311-a9f8-897c60ae0890" />
+<img width="1600" src="https://github.com/user-attachments/assets/ad6f7b9f-c88a-46e1-a1cf-c5bf5d265c83" />
 
 
 <p align="center"
@@ -59,3 +59,5 @@ $\color{#656d75}{\text{𝚊𝚛𝚝 𝚌𝚛𝚎𝚍𝚜: 𝚁𝚒𝚍𝚍𝚕�
 
  </p>
 </div>
+
+<img width="1500" src="https://github.com/user-attachments/assets/07dea713-db8b-4471-ab24-71aa23483b7b" />
