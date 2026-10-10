@@ -97,12 +97,11 @@ $\color{#656d75}{\text{@crucifyd on tumblr- amanda young graphic}}$
 
 
 <img width="20" height="20" alt="tumblr_1e5883f844d5e8d987774b1a20009625_2edada7f_75" src="https://github.com/user-attachments/assets/038cb394-d785-4294-b93c-4154ccdd1276" />
-<img width="40"  alt="tumblr_6a6a9d0637dd6a9088af6d9a5b81ee02_85a27dd3_75" src="https://github.com/user-attachments/assets/a6879d22-069e-4546-a102-c3db211d44de" />
-<img width="20" alt="tumblr_ac24d33c14f08012b521418776d73552_96caa19a_75" src="https://github.com/user-attachments/assets/4c358c51-2c94-4303-82b5-0afa163c0a11" />
 <img width="49" height="18" alt="tumblr_be578e671f715c8386e1d7657e333e4f_2853f8ba_75" src="https://github.com/user-attachments/assets/79013b8f-d8c4-4e32-be84-c7d414fc2734" />
-<img width="20" alt="tumblr_bd34fcb117a8df79156373f3d53cbfb1_4cdf295f_75" src="https://github.com/user-attachments/assets/103e4857-aff6-48cb-83f5-13b67306c803" />
 <img width="20" alt="tumblr_a84772d1a624e2e54473a3d93a0d1546_2eec5818_75" src="https://github.com/user-attachments/assets/418627fd-2551-4ecf-9d16-a428fcad5c3d" />
-
+<img width="20" alt="tumblr_ac24d33c14f08012b521418776d73552_96caa19a_75" src="https://github.com/user-attachments/assets/4c358c51-2c94-4303-82b5-0afa163c0a11" />
+<img width="40"  alt="tumblr_6a6a9d0637dd6a9088af6d9a5b81ee02_85a27dd3_75" src="https://github.com/user-attachments/assets/a6879d22-069e-4546-a102-c3db211d44de" />
+<img width="20" alt="tumblr_bd34fcb117a8df79156373f3d53cbfb1_4cdf295f_75" src="https://github.com/user-attachments/assets/103e4857-aff6-48cb-83f5-13b67306c803" />
 
 
 
