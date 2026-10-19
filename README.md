@@ -3,7 +3,15 @@
 
 <p align="center"
 
+https://icarusdnibyi.carrd.co/
 
+<p align="center"
+
+$\color{#00b6ff}{\text{𝙰𝙱𝙾𝚅𝙴 𝚒𝚜 𝚖𝚢 𝚜𝚌𝚞𝚏𝚏𝚎𝚍, 𝟻-𝚖𝚒𝚗𝚞𝚝𝚎 𝙳𝙽𝙸/𝙱𝚈𝙸. 𝚁𝙴𝙰𝙳 𝙸𝚃. 𝚝𝚑𝚊𝚗𝚔𝚜 !!}}$
+
+
+<p align="center"
+ 
 $\color{#969fa8}{\text{𝙳𝚘𝚝/𝙵𝚞𝚛𝚎𝚗/𝙸𝚌𝚊𝚛𝚞𝚜!! }}$
 
 <p align="center"
