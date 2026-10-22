@@ -46,7 +46,7 @@ $\color{#969fa8}{\text{𝚒 𝚊𝚕𝚜𝚘 𝙻𝙾𝙾𝙾𝚅𝚅𝚅𝙴 �
 
 <p align="center"
 
- ![](https://komarev.com/ghpvc/?username=dearightshade&label=👀KINDNESS&color=656d75&style=flat)
+ ![](https://komarev.com/ghpvc/?username=dearnightshade&label=👀KINDNESS&color=656d75&style=flat)
  
 
 <img width="1500" src="https://github.com/user-attachments/assets/9e4efdff-6410-4cf6-9822-b4f416f6a4e4" />
